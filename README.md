@@ -10,7 +10,7 @@
 Here are some ideas to get you started:
 -->
 
-- 📫 reach me on [Instagram](https://instagram.com/whos.irsan?igshid=YTY2NzY3YTc=)
+- 📫 reach me on [Instagram](https://instagram.com/whosis.irsan?)
 - My pronouns are he not him, because i never be [him](https://www.tiktok.com/@the_mannii/video/7145978827355786538?is_from_webapp=v1&item_id=7145978827355786538)
 
 #### <a href="https://github.com/zsfell">
