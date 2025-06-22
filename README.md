@@ -11,7 +11,6 @@ Here are some ideas to get you started:
 -->
 
 - 📫 reach me on [Instagram](https://www.instagram.com/whois.irsan/)
-- My pronouns are he not him, because i never be [him](https://www.tiktok.com/@the_mannii/video/7145978827355786538?is_from_webapp=v1&item_id=7145978827355786538)
 
 #### <a href="https://github.com/zsfell">
    <img src="https://komarev.com/ghpvc/?username=zsfell">
